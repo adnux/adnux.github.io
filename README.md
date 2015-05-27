@@ -1,2 +1,0 @@
-# adnux.github.io
-Publications
